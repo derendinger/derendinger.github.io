@@ -9,7 +9,7 @@ Traffic Congestion: The street is heavily trafficked, leading to a constant back
 3. Familienverhältnisse: Zusätzlich wohnt der Sohn des Vermieters im selben Haus, was zu möglichen Unannehmlichkeiten führen könnte.<br>
 Family Relations: Additionally, the landlord's son lives in the same house, which could potentially lead to inconveniences.<br>
 4. Nicht nur das Haus hat einen Dachschaden.<br>
-Not Only the House: There is a significant roof damage, not just to the house.<br>
+There is a significant roof damage, not just to the house.<br>
 
 ***Bitte berücksichtigen Sie diese Aspekte, bevor Sie eine Entscheidung über die Miete treffen.*** <br>
 ***Please consider these aspects before making a decision about the rent.***
