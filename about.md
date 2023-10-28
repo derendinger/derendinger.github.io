@@ -1,4 +1,4 @@
-***Achtung bei der Miete in Derendingerstr. 34, 72072 Tübingen.***
+***Achtung bei der Miete in Derendingerstr. 34, 72072 Tübingen.*** <br>
 ***Attention when renting at Derendingerstr. 34, 72072 Tübingen.*** 
 <br>
 <br>
@@ -11,6 +11,6 @@ Family Relations: Additionally, the landlord's son lives in the same house, whic
 4. Nicht nur das Haus hat einen Dachschaden.<br>
 Not Only the House: There is a significant roof damage, not just to the house.<br>
 
-***Bitte berücksichtigen Sie diese Aspekte, bevor Sie eine Entscheidung über die Miete treffen.***
+***Bitte berücksichtigen Sie diese Aspekte, bevor Sie eine Entscheidung über die Miete treffen.*** <br>
 ***Please consider these aspects before making a decision about the rent.***
 
